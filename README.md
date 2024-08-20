@@ -1,3 +1,3 @@
 # PLP_ACADEMY
 Evening session
-i love sweet foods.
+i love sweet meals.
